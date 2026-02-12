@@ -14,15 +14,15 @@
 2. 
 3. 
 4. Natalia
-5. 
-6. 
-7. 
+5. Caroline, my [Linkedin]([https://www.linkedin.com/feed/](https://www.linkedin.com/in/caroline-landelle-a65032104/))
+6. zhengze
+7. Navid, 12/Feb/2026, [My LinkedIn](https://www.linkedin.com/in/navid-ghassemi-687384b5/)
 8. 
 9. 
 10. 
-11. 
+11. Marie P - https://www.linkedin.com/in/marie-poirot-07089a146/ 
 12. 
-13. 
+13. Amanda R - https://www.linkedin.com/in/amanda-rande/
 14. 
 15. 
 16. 

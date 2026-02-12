@@ -10,7 +10,7 @@
 
 ## Participant PRs
 
-1. 
+1. Cass GvP, here is my [LinkedIn](https://www.linkedin.com/in/cassandra-gould-van-praag-b8292a16/)
 2. 
 3. 
 4.  
@@ -20,7 +20,7 @@
 8. 
 9. 
 10. 
-11. 
+11. Marie P - https://www.linkedin.com/in/marie-poirot-07089a146/ 
 12. 
 13. 
 14. 
